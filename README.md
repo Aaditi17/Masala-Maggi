@@ -1,1 +1,3 @@
 # Masala-Maggi
+
+Hello, I am Aaditi Jaiswal. My hobby is cooking and I often go in the kitchen and create or experiment new recipes...and here I will be sharing with you two of my favourite plus hit random experimented recipe, which is 'MASALA MAGGI' and 'MASALA CHAACH'. I think every kid loves maggi but aren't you bored eating that stuff again and again so here is a twist in that...Try this recipe and tell me how did you liked it...I also wanna share a refreshing drink which is MASALA CHAACH homemade...
